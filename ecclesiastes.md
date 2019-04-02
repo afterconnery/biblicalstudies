@@ -48,3 +48,6 @@ Let's now watch a couple of videos from [The Bible Project](https://thebibleproj
 5. **Fear God**
     * Life is mysterious, but we can fear God, keep His commandments, enjoy the moment and trust His judgment because one day He will clear hevel.
     
+    
+    
+LAdQvHRWZmzaqpiVpXVPePhYTqWwhWpvp2tkCzqq1SZDG2WGEb6Bz6BX9c7Un2eDAfM1rkKr7QVeEBqcR8WdAcCsPddCb2q
