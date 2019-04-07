@@ -25,7 +25,7 @@ Let's now watch a couple of videos from [The Bible Project](https://thebibleproj
 2. To learn wisdom and moral instruction, and to discern wise counsel. 3. To receive moral instruction in skillful living,
 in righteousness, justice, and equity. 4. To impart shrewdness to the morally naive, and a discerning plan to the young person. 5. (Let the wise also hear and gain instruction, and let the discerning acquire guidance!) 6. To discern the meaning of a proverb and a parable, the sayings of the wise and their riddles. </p>
 
-* **Who is the author of this book? Why is this important to point out? How is this different to Ecclesiastes?**
+  * **Who is the author of this book? Why is this important to point out? How is this different to Ecclesiastes?**
 
 * Proverbs 1:20-33
 <p>20 Wisdom calls out in the street,
@@ -74,7 +74,7 @@ and the careless ease of fools will destroy them.
 But the one who listens to me will live in security,
 and will be at ease from the dread of harm.</p>
 
-* **This is the first poem from Lady Wisdom (Sophia). What do we learn about her?**
+  * **This is the first poem from Lady Wisdom (Sophia). What do we learn about her?**
 
 * Proverbs 10:22-28
 <p> 22 
@@ -99,7 +99,7 @@ but the life span of the wicked will be shortened.
 The hope of the righteous is joy,
 but the expectation of the wicked will remain unfulfilled.</p>
 
-* **Is this always true in life? If it isn't, then why is it in here?
+* **Is this always true in life? If it isn't, then why is it in here?**
 
 * Proverbs 30:1-5
 <p> 30 The words of Agur, the son of Jakeh; an oracle:
@@ -120,7 +120,7 @@ What is his name, and what is his son’s name?—if you know!
 Every word of God is purified;
 he is like a shield for those who take refuge in him.</p>
 
-* **Who is Agur and why does he have his own chapter in Proverbs?
+* **Who is Agur and why does he have his own chapter in Proverbs?**
 
 * Proverbs 31:1-9
 <p> 1 The words of King Lemuel,
@@ -221,16 +221,16 @@ but a woman who fears the Lord will be praised.
 Give her credit for what she has accomplished,
 and let her works praise her in the city gates. </p>
 
-* **What do we learn about this woman? Is this a template that all women should follow? Why have this in Proverbs and why at the end of the book?**
+   * **What do we learn about this woman? Is this a template that all women should follow? Why have this in Proverbs and why at the end of the book?**
 
 ## Five Milestones
 1. Purpose of Proverbs
-  * The book of Proverbs contains sayings and riddles featuring wisdom, applied knowledge that helps every person develop practical skills to live well in God's world.
+    * The book of Proverbs contains sayings and riddles featuring wisdom, applied knowledge that helps every person develop practical skills to live well in God's world.
 2. Fear of the Lord
-  * The journey to wisdom begins with fear of the Lord, a reverential and healthy respect of Him. Only then can we embrace a moral mindset.
+    * The journey to wisdom begins with fear of the Lord, a reverential and healthy respect of Him. Only then can we embrace a moral mindset.
 3. Generational Insight
-  * Ten speeches from a father and four poems from lady wisdom show us that Proverbs is God's own invitation to learn wisdom from previous generations. 
+    * Ten speeches from a father and four poems from lady wisdom show us that Proverbs is God's own invitation to learn wisdom from previous generations. 
 4. The Good Life
-  * Read hundreds of sayings that apply wisdom and fear of the Lord to every subject imaginable. They offer formulas for success but are not promises. 
+    * Read hundreds of sayings that apply wisdom and fear of the Lord to every subject imaginable. They offer formulas for success but are not promises. 
 5. Godly Woman
-  * A woman of noble character models someone who takes God's wisdom found in Proverbs and translates it into practical decisions for success in everyday life. 
+    * A woman of noble character models someone who takes God's wisdom found in Proverbs and translates it into practical decisions for success in everyday life. 
