@@ -237,4 +237,5 @@ and let her works praise her in the city gates. </p>
 
 ---
 Videos and Five Milestones are from [The Bible Project](https://thebibleproject.com).
-" Scripture quoted by permission. All scripture quotations, unless otherwise indicated, are taken from the NET Bible® copyright ©1996-2016 by Biblical Studies Press, L.L.C. All rights reserved."
+
+Scripture quoted by permission. All scripture quotations, unless otherwise indicated, are taken from the NET Bible® copyright ©1996-2016 by Biblical Studies Press, L.L.C. All rights reserved.
