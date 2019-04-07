@@ -24,12 +24,11 @@ Let's now watch a couple of videos from [The Bible Project](https://thebibleproj
 <p>1. The Proverbs of Solomon son of David, king of Israel:
 2. To learn wisdom and moral instruction, and to discern wise counsel. 3. To receive moral instruction in skillful living,
 in righteousness, justice, and equity. 4. To impart shrewdness to the morally naive, and a discerning plan to the young person. 5. (Let the wise also hear and gain instruction, and let the discerning acquire guidance!) 6. To discern the meaning of a proverb and a parable, the sayings of the wise and their riddles. </p>
+
 * **Who is the author of this book? Why is this important to point out? How is this different to Ecclesiastes?**
 
-
 * Proverbs 1:20-33
-<p>20 
-Wisdom calls out in the street,
+<p>20 Wisdom calls out in the street,
 she shouts loudly in the plazas;
 21 
 at the head of the noisy streets she calls,
@@ -74,6 +73,7 @@ and the careless ease of fools will destroy them.
 33 
 But the one who listens to me will live in security,
 and will be at ease from the dread of harm.</p>
+
 * **This is the first poem from Lady Wisdom (Sophia). What do we learn about her?**
 
 * Proverbs 10:22-28
@@ -98,6 +98,7 @@ but the life span of the wicked will be shortened.
 28 
 The hope of the righteous is joy,
 but the expectation of the wicked will remain unfulfilled.</p>
+
 * **Is this always true in life? If it isn't, then why is it in here?
 
 * Proverbs 30:1-5
@@ -118,6 +119,7 @@ What is his name, and what is his son’s name?—if you know!
 5 
 Every word of God is purified;
 he is like a shield for those who take refuge in him.</p>
+
 * **Who is Agur and why does he have his own chapter in Proverbs?
 
 * Proverbs 31:1-9
@@ -148,6 +150,7 @@ for the legal rights of all the dying.
 9 
 Open your mouth, judge in righteousness,
 and plead the cause of the poor and needy.</p>
+
 * **Who is the author of this chapter? Whose wisdom is this from and who is it for?**
 
 * Proverbs 31:10-31
@@ -217,6 +220,7 @@ but a woman who fears the Lord will be praised.
 31 
 Give her credit for what she has accomplished,
 and let her works praise her in the city gates. </p>
+
 * **What do we learn about this woman? Is this a template that all women should follow? Why have this in Proverbs and why at the end of the book?**
 
 ## Five Milestones
