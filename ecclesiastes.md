@@ -47,9 +47,4 @@ Let's now watch a couple of videos from [The Bible Project](https://thebibleproj
     * Life is unpredictable, out of our control and nonsensical. Good people suffer while evil people live long. We fail if we try to master life.
 5. **Fear God**
     * Life is mysterious, but we can fear God, keep His commandments, enjoy the moment and trust His judgment because one day He will clear hevel.
-    
-    
-    
-LAdQvHRWZmzaqpiVpXVPePhYTqWwhWpvp2tkCzqq1SZDG2WGEb6Bz6BX9c7Un2eDAfM1rkKr7QVeEBqcR8WdAcCsPddCb2q
 
-TRTLuzFsir5FzESbUzWQK5Ap5adhB6eYb4L7VZWWTugJanfmR5xPQrPRK6Tqh8oPBPRoD1tw9wvat1kGdZc4RxPafwaQBT64Y4G
