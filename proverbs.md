@@ -224,13 +224,17 @@ and let her works praise her in the city gates. </p>
    * **What do we learn about this woman? Is this a template that all women should follow? Why have this in Proverbs and why at the end of the book?**
 
 ## Five Milestones
-1. Purpose of Proverbs
+1. **Purpose of Proverbs**
     * The book of Proverbs contains sayings and riddles featuring wisdom, applied knowledge that helps every person develop practical skills to live well in God's world.
-2. Fear of the Lord
+2. **Fear of the Lord**
     * The journey to wisdom begins with fear of the Lord, a reverential and healthy respect of Him. Only then can we embrace a moral mindset.
-3. Generational Insight
+3. **Generational Insight**
     * Ten speeches from a father and four poems from lady wisdom show us that Proverbs is God's own invitation to learn wisdom from previous generations. 
-4. The Good Life
+4. **The Good Life**
     * Read hundreds of sayings that apply wisdom and fear of the Lord to every subject imaginable. They offer formulas for success but are not promises. 
-5. Godly Woman
+5. **Godly Woman**
     * A woman of noble character models someone who takes God's wisdom found in Proverbs and translates it into practical decisions for success in everyday life. 
+
+---
+Videos and Five Milestones are from [The Bible Project](https://thebibleproject.com).
+" Scripture quoted by permission. All scripture quotations, unless otherwise indicated, are taken from the NET Bible® copyright ©1996-2016 by Biblical Studies Press, L.L.C. All rights reserved."
