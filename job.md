@@ -96,7 +96,7 @@ So the Lord said to *The Accuser*, “All right then, everything he has is in yo
 12 But the witless can no more become wise
     than a wild donkey’s colt can be born human.
 
-* **How do Job's friends see what has happened to Job? Where does their worldview stem from? Are they right?
+* **How do Job's friends see what has happened to Job? Where does their worldview stem from? Are they right?**
 
 * Chapter 29:2-17
 
@@ -164,7 +164,7 @@ So the Lord said to *The Accuser*, “All right then, everything he has is in yo
 37 I would give him an account of my every step;
     I would present it to him as to a ruler.)—
 
-* **How does Job respond after long discussions with his friends? How does Job view what happened to him? 
+* **How does Job respond after long discussions with his friends? How does Job view what happened to him?** 
 
 * Chapter 38:1-18
 
@@ -228,7 +228,7 @@ So the Lord said to *The Accuser*, “All right then, everything he has is in yo
     that your own right hand can save you.
 
 
-* **What is God's response to Job's accusation? What do you think of God's response? What does God tell Job about justice?
+* **What is God's response to Job's accusation? What do you think of God's response? What does God tell Job about justice?**
 
 * Chapter 42:1-6
 
@@ -248,7 +248,7 @@ So the Lord said to *The Accuser*, “All right then, everything he has is in yo
 6 Therefore I despise myself
     and repent in dust and ashes.”
 
-* **How does Job respond to God's response? What did Job learn about justice and how it's metered out?
+* **How does Job respond to God's response? What did Job learn about justice and how it's metered out?**
 
 ## Five Milestones
 1. **God Tests Job**
